@@ -1,2 +1,0 @@
-# Kido
-Ito Yuketsu
